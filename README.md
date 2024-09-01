@@ -94,3 +94,23 @@ Start at 27/08
 #HELLNO
 
 sept 09/09
+![[sept 09.jpg]]
+
+# Tenth post
+#justgetoutofthere
+
+**10/09**
+![[sept 10.jpg]]
+
+# Eleventh post
+#WHANTITYOUWILLNOTGETIT
+
+**11/09**
+![[sept 11.jpg]]
+
+# Twelfth post
+#getbackhear
+
+**12/09**
+![[sept 12.jpg]]
+
