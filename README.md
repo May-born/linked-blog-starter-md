@@ -94,6 +94,7 @@ Start at 27/08
 #HELLNO
 
 sept 09/09
+<<<<<<< HEAD
 ![[sept 09.jpg]]
 
 # Tenth post
@@ -113,4 +114,34 @@ sept 09/09
 
 **12/09**
 ![[sept 12.jpg]]
+
+# Twelfth post
+#nomess
+
+**12/09**
+![[sept 12.jpg]]
+
+# Thirteenth post
+#gigganigga
+
+**13/09**
+![[sept  13.png]]
+
+# fourteenth post
+#GHOST
+
+**14/09**
+![[sept 14.jpg]]
+
+# Fifteenth post
+#KYA 
+
+**15/09
+![[sept 15.jpg]]
+
+# Sixteenth post
+#apphainkon
+
+**16/09**
+![[sept 16.jpg]]
 
