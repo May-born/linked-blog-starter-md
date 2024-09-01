@@ -193,3 +193,43 @@ sept 09/09
 **24/09**
 ![[sept 24.jpg]]
 
+# Twenty-fifth
+#INAPPROPRIATEBRO
+
+**25/09**
+![[sept 25.jpg]]
+
+
+# Twenty-sixth 
+#darklyboi
+
+**26/09**
+![[sept 26.jpg]]
+
+# twenty-seventh
+#bleakgoat
+
+**27/09**
+![[sept 27.jpg]]
+
+# Twenty-eighth
+#offensivenigga
+
+**28/09**
+![[sept 28.jpg]]
+
+# Twenty-ninth
+#sinisterdrake
+
+**29/09**
+![[sept 29.jpg]]
+
+# thirtieth
+#SAVAGE
+
+**30/09**
+![[sept 30.jpg]]
+
+[AND WITH THIS THE SEASON ENDS]
+
+                                                                                                                                              
