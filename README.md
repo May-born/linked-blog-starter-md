@@ -145,3 +145,51 @@ sept 09/09
 **16/09**
 ![[sept 16.jpg]]
 
+# seventeenth post 
+#offbeathumor
+
+**17/09**
+![[sept 17.jpg]]
+
+# Eighteenth post 
+#blackhumor
+
+**18/09**
+![[sept 18.jpg]]
+
+# Nineteenth post
+#cynicalnews
+
+**19/09**
+![[sept 19.jpg]]
+
+# Twentieth post 
+#darkandedgyproblem
+
+**20/09**
+![[sept 20.jpg]]
+
+# Twenty-first
+#bitterlaughs
+
+**21/09**
+![[sept 21.jpg]]
+
+# Twenty-second
+#twistedhumor
+
+**22/09**
+![[sept 22.jpg]]
+
+# Twenty-third
+#DOOMED
+
+**23/09**
+![[sept 23.jpg]]
+
+# Twenty-fourth
+#morbidhumor
+
+**24/09**
+![[sept 24.jpg]]
+
