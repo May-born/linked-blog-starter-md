@@ -44,7 +44,7 @@ Start at 27/08
 #thesecretofgettingaheadisgettingstarted
 
 **sept 01/09**
-![[sept 01 1.jpg]]
+![[sept 01.jpg]]
 
 # Second post
 #feelingsunseteld
@@ -125,7 +125,7 @@ sept 09/09
 #gigganigga
 
 **13/09**
-![[sept  13.png]]
+![[sept 13.png]]
 
 # fourteenth post
 #GHOST
