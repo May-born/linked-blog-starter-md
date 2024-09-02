@@ -76,19 +76,19 @@ Start at 27/08
 #idontknow
 
 **sept 06/09**
-![[sept.jpg]]
+![[sept 06.jpg]]
  
 # Seventh post
 #nofurtureseen
 
 **sept 07/09**
-![[sept (1).jpg]]
+![[sept 07.jpg]]
 
 # Eighth post
 #youknowidont
 
 **sept 08/09**
-![[sept.png]]
+![[sept 08.png]]
 
 # Ninth post 
 #HELLNO
